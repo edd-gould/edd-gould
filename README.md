@@ -4,6 +4,6 @@
 
 <p align="center">
   
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀   ⠀⠀[<img src="https://files.catbox.moe/uksisu.PNG" width="350">](https://github.com/the-red-leader)
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀⠀ ⠀  [<img src="https://files.catbox.moe/92426u.PNG" width="350">](https://github.com/the-red-leader)
 
 </p> 
