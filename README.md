@@ -4,10 +4,10 @@
   
 <p align="center">
 
-<img src="https://files.catbox.moe/zmqn7a.PNG" width="450">
+<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7896.PNG" width="450">
 
 <p align="center">
   
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀  ⠀⠀ ⠀⠀⠀ ⠀ ⠀ ⠀  [<img src="https://files.catbox.moe/92426u.PNG" width="350">](https://github.com/the-red-leader)
+   ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀[<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7894.PNG" width="350">](https://rentry.co/bacon-cola)
 
 </p> 
