@@ -8,6 +8,6 @@
 
 <p align="center">
   
-   ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀⠀ [<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7759.PNG" width="350">](https://github.com/the-red-leader)
+   ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀[<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7759.PNG" width="350">](https://github.com/the-red-leader)[<img scr="https://file.garden/aOzMKcIeICuTJJmk/IMG_7894.PNG" width="350">](https://rentry.co/bacon-cola)
 
 </p> 
