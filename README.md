@@ -1,10 +1,6 @@
 <p align="center">
 
-<img src="https://files.catbox.moe/bjlrps.gif" width="85">
-
-<p align="center">
-
- ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀ [<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8172.png" width="250">](https://github.com/the-red-leader)
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀ [<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8172.png" width="250">](https://github.com/the-red-leader) <img src="https://files.catbox.moe/bjlrps.gif" width="85">
   
 <p align="center">
 
