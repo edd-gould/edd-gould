@@ -1,13 +1,12 @@
 <p align="center">
 
-  <img src="https://files.catbox.moe/lgjnhd.PNG" width="350">
+ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀⠀  [<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8172.png" width="250">](https://github.com/the-red-leader)
   
 <p align="center">
 
-<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7755.PNG" width="450">
+<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_8171.png" width="400">
 
 <p align="center">
   
-   ⠀ ⠀ ⠀ ⠀ ⠀   ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀[<img src="https://file.garden/aOzMKcIeICuTJJmk/IMG_7759.PNG" width="350">](https://github.com/the-red-leader)
-
-</p> 
+ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀[ata](https://dontstoplovinme.atabook.org/) ⠀[rentry](https://rentry.co/bacon-cola)
+ </p>
