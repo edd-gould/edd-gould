@@ -8,5 +8,5 @@
 
 <p align="center">
   
- ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀⠀[ata](https://dontstoplovinme.atabook.org/) ⠀[rentry](https://rentry.co/bacon-cola)
+ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀⠀[ata](https://dontstoplovinme.atabook.org/) ⠀[rentry](https://rentry.co/bacon-cola)
  </p>
