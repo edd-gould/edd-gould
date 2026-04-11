@@ -8,5 +8,5 @@
 
 <p align="center">
   
- ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀[ata](https://dontstoplovinme.atabook.org/) ⠀[rentry](https://rentry.co/bacon-cola) ⠀[art cr.](https://www.tumblr.com/hazardrookie)
+ ⠀ ⠀ ⠀ ⠀ ⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀[ata](https://dontstoplovinme.atabook.org/) ⠀[rentry](https://rentry.co/bacon-cola) ⠀[art cr.](https://www.tumblr.com/hazardrookie)
  </p>
